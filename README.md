@@ -2,7 +2,7 @@
 
 Me chamo Eduardo Moraes de Almeida Martins, tenho 19 anos e sou de Sorocaba, São Paulo. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na Facens.
 
-No tempo livre, sou Gestor de Tráfego pago, Meta Ads & Google Ads, Focado no Marketing e crescimento de de negocios locais/web.
+No tempo livre, sou Gestor de Tráfego pago, Meta Ads & Google Ads, Focado no Marketing e crescimento de negocios locais/web.
 
 ---
 
